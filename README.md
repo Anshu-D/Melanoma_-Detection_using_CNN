@@ -36,4 +36,4 @@
 
 
 ## Contact
-Created by [@rahulkpareek] - feel free to contact me!
+Feel free to contact!
